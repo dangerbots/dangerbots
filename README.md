@@ -1,7 +1,7 @@
 
 
 
-<img align='right' src="https://giphy.com/stickers/hackacademy-uruguay-cID9NShVKKjHs5ygCP" width="230">
+<img align='right' src="https://giphy.com/stickers/hackacademy-uruguay-cID9NShVKKjHs5ygCP/giphy.gif" width="230">
 
 
 
