@@ -5,7 +5,7 @@
 
 
 
-# <p><em>Telegram id <a href="https://t.me/danger_of_telegram/𝗔𝗻𝗼𝗻𝘆𝗺𝗼𝘂𝘀么𝗸𝗶𝗱">@danger_of_telegram</a><img src="https://media.giphy.com/media/XynQlyt0axNUU8lCkB/giphy.gif" width="150"> 
+# <p><em>Telegram id <a href="https://t.me/danger_of_telegram/𝗔𝗻𝗼𝗻𝘆𝗺𝗼𝘂𝘀么𝗸𝗶𝗱">𝗔𝗻𝗼𝗻𝘆𝗺𝗼𝘂𝘀么𝗸𝗶𝗱</a><img src="https://media.giphy.com/media/XynQlyt0axNUU8lCkB/giphy.gif" width="150"> 
 
 
 <a href="https://t.me/danger_of_telegram"><img src="https://img.shields.io/badge/Join-Telegram%20Channel-red.svg?logo=Telegram"></a> <a href="https://t.me/danger_of_telegram"><img src="https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram"></a>
